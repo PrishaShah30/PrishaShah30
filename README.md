@@ -3,4 +3,3 @@
 - 🌱 I’m currently pursuing my undergrad at the Rutgers Unviersity- New Brunswick
 - 💞️ I’m looking for internships and real world project expereince
 - 📫 How to reach me- prisha003shah@gmail.com
-- ⚡ Fun fact: I enjoy math when I understand the formulas instead of learning them! 
