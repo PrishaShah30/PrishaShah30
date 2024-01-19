@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @PrishaShah30
+- 👀 I’m interested in Software Engineering and developing as well as data analytics 
+- 🌱 I’m currently pursuing my undergrad at the Rutgers Unviersity- New Brunswick
+- 💞️ I’m looking for internships and real world project expereince
+- 📫 How to reach me- prisha003shah@gmail.com
+- ⚡ Fun fact: I enjoy math when I understand the formulas instead of learning them! 
